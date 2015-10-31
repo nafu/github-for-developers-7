@@ -4,6 +4,10 @@
 
 I like nikujaga (simmered meat and potatoes).  
 
+## Favorite color
+
+Blue.
+
 ## My Interests
 
 I like playing soccer, watching movies, listening music.  
